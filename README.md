@@ -25,4 +25,4 @@
 
 - Eduardo Costa Borges
 
-[Clique aqui para acessar meu Linkendln para qualquer dúvida](www.linkedin.com/in/eduardocostaborges)
+[Clique aqui para acessar meu Linkendln para qualquer dúvida](https://www.linkedin.com/in/eduardocostaborges/)
